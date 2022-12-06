@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @w-s-bitcoin
-- 👀 I’m interested in art, math, programming, & 🍊💊
+- 👀 I’m interested in art, math, programming, & Bitcoin
 - 📫 How to reach me https://twitter.com/w_s_bitcoin
